@@ -80,4 +80,5 @@ Languages
 
 ----
 
-> <lenta.kg@gmail.com> • +375 29 250 7604\
+> <lenta.kg@gmail.com> • +375 29 250 7604
+
